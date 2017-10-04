@@ -1,2 +1,0 @@
-# Mandelfungus
-# Mandelfungus
